@@ -1,1 +1,4 @@
 # proyectoDemoCursoPrework
+en este archivo voy a contar todas mis frustaciones de cuando no me salen las cosas.. jajajajajajaja no mentiras hasta ahora todo me a salido okzzzzzzzz
+z
+esto es una prueba zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
